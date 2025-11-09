@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ray-Appiah
 - 👀 I’m interested in data analysis 
-- 💞️ I’m looking to collaborate on how to analyze data (social sciences)
+- 💞️ I’m looking to collaborate on how to analyze data 
 - 📫 How to reach me is via email. r.appiahkofi@gmail.com
 - 😄 Pronouns: He/His/Him
 - ⚡ Fun fact: ...
